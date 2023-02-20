@@ -1,2 +1,2 @@
-# https-softcrackpro.com-noteburner-spotify-music-softcrackpro-
+# https://softcrackpro.com/noteburner-spotify-music-softcrackpro/
 NoteBurner Spotify Music Converter Crack is a reliable and professional audio converter app that can turn your audio tracks and songs into popular audio file formats like mp3, AAC, FLAC, and WAV. It’s an easy-to-use program that can get rid of the DRM protection on Spotify music, so you can save it to your PC or play it on your music player.
